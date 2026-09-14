@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-![167220fb4f5d929ccffbf2751183baf1](https://github.com/user-attachments/assets/1cf2b733-d498-4228-8a8d-d7f3e9a3bacd)
+![AqS6Xm](https://github.com/user-attachments/assets/df631917-e94a-4ca2-be80-0e64f774411a)
